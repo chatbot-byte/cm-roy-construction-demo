@@ -1,1 +1,0 @@
-# cm-roy-construction-demo
